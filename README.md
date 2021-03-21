@@ -1,2 +1,2 @@
 # MPP
-![screenshot of sample](https://ibb.co/7Jv238M)
+![screenshot of sample](https://b.radikal.ru/b21/2103/99/cbc014f56340.png)
